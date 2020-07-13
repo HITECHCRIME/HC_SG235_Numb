@@ -35,7 +35,8 @@ thrilled you might be thinking
 that i'm seeking redemption 
 applause for doing the wrong
 it sure is a hell of a trick 
-of a question when you're applying the doubts
+of a question when you're 
+always applying the doubts
 
 tied to a tree on a shore of endless rocks
 
