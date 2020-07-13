@@ -34,7 +34,7 @@ for misery you still keeping
 thrilled you might be thinking 
 that i'm seeking redemption 
 applause for doing the wrong
-it's all a hell of a trick 
+it sure is a hell of a trick 
 of a question when you're applying the doubts
 
 tied to a tree on a shore of endless rocks
