@@ -40,7 +40,7 @@ always applying the doubts
 
 tied to a tree on a shore of endless rocks
 
-i don't see further than the vastness of all
+i don't see further than the vastness of it all
 
 I don't blame the eyesight for the mind
 
