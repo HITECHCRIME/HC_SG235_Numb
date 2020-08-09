@@ -30,7 +30,7 @@ i'm still predicting the unknown too sudden clinging to control
 
 dormant in motion
 attention seeking 
-for misery you still keeping 
+for misery you still keep it (keeping) 
 thrilled you might be thinking 
 that i'm seeking redemption 
 applause for doing the wrong
@@ -40,7 +40,7 @@ always applying the doubts
 
 tied to a tree on a shore of endless rocks
 
-i don't see further than the vastness of it all
+i see further than the vastness of it all
 
 I don't blame the eyesight for the mind's faults
 
